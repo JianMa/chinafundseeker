@@ -1,0 +1,1 @@
+We collect the China fund information on our website
